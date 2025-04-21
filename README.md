@@ -1,2 +1,2 @@
 # geo-software-dev
-jııjnnn
+jııjnnncb
